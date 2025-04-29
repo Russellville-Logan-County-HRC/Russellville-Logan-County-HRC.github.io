@@ -6,7 +6,6 @@
 - Nora Lacayo (Vice Chairperson) (City)
 - Ellen Nealy (Treasurer) (City)
 - William Woodard (Secretary) (City)
-- Trevor Brown (Media Contact) (County)
 - Marie Gamble (County)
 - Tenoeda Yarbrough (County)
 - Donnie Dickerson (County)
